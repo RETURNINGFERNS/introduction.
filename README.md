@@ -49,6 +49,9 @@ THIN ICE
         I do use typing quirks sometimes (specifically for the character i am), Please tell me if you need me to translate or don't want me using them at all! ^_^
 
 
+             -ˋˏ ༻❁༺ ˎˊ-
+
+    I am c+h friendly! i have a touch comfort + cover comfort (mostly by oomfis) and i really can be clingy if i know you. If anyone im sitting with (or me) has dni in name, then please don't c+h. I also will ask to c+h even if you have "c+h freely" or whatever. ^_^
 
 
 
